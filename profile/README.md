@@ -2,6 +2,12 @@
 
 (TRANSMISSÃO AO VIVO) assistir Portugal x Geórgia ao vivo na tv [[[HOJE*]]] assistir Geórgia e Portugal ao vivo agora Geórgia x 26
 
+<b><a rel="noopener nofollow" href="https://sportsonhd.com/hd/UEFA-Euro">➤►🌍📺📱👉CLICK HERE TO GO LIVE</a></b>
+
+<b><a rel="noopener nofollow" href="https://sportsonhd.com/hd/UEFA-Euro">➤►🌍📺📱👉CLICK HERE TO GO LIVE</a></b>
+
+<b><a rel="noopener nofollow" href="https://sportsonhd.com/hd/UEFA-Euro">➤►🌍📺📱👉CLICK HERE TO GO LIVE</a></b>
+
 Onde assistir Geórgia x Portugal hoje (26) ao vivo: Saiba onde acompanhar, escalações e horário
 
  
